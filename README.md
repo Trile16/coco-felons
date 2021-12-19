@@ -1,6 +1,5 @@
-# Co-CO Products
-
-## Your Home for all Co-Co Related Stuff
+# Coco Felons
+## * Your Home for All Products Coco Related! *
 
 # The Smallest Starting Point
 
